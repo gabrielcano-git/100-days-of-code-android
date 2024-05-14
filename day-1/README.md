@@ -1,0 +1,1 @@
+Documento para anexar os estudos do primeiro dia.
